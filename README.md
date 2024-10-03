@@ -1,3 +1,2 @@
 #ja
-No elo programuje se w js najlepszy programista js w polsce tf
-
+zart jestem ku**ą nigdy nie będę programował
